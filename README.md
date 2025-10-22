@@ -1,1 +1,1 @@
-# Animationi had to do for a school project
+# Animation I had to do for a school project
